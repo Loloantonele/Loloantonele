@@ -1,3 +1,4 @@
+Olá, eu sou a Lorena, tenho 18 anos e estou estudando programação.
 - 📫 Contate-me pelo email: loloantonele@outlook.com
 - 😄 Pronomes: Ela/Dela
   
